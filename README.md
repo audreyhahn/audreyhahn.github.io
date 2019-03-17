@@ -1,8 +1,8 @@
 # Endangered species.wildlife
 
 
-[About](/About) 	Animals  
-[Endangered species](/Species) Buy  
+[About](/About) 	
+[Endangered species](/Species) [Buy](/Buy)  
                           Poker dear  
                         Zebras.   Florida Panther.   Rhino.  
                     Cheetahs.  Tiger.                    Lions.                
