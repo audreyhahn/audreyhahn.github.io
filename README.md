@@ -2,7 +2,7 @@
 
 
 [About](/About) 	
-[Endangered species](/Species) [Buy](Buying)  
+[Endangered species](/Species) [Buy](/Buy)  
                           Poker dear  
                         Zebras.   Florida Panther.   Rhino.  
                     Cheetahs.  Tiger.                    Lions.                
