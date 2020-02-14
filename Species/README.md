@@ -1,6 +1,6 @@
 Endangered Animals 
                
-Little Polar bear cuds are exposed to danger when there are still developing.Polar bears only live in the NORTH POLE where there is only ice and water.They can swim in the freezing water to cech there prey.They have  thick cots of hair to keep them warm and snugly.
+Little Polar bear cuds are exposed to danger when there are still developing.Polar bears only live in the NORTH POLE where there is only ice and water.They can swim in the freezing water to catch there prey.They have  thick cots of hair to keep them warm and snugly.
               
 Cheetahs can run as fast as 60-70 MPH or as fast as a car on a high way at top speed. But even its speed may not save it from hunters and the from people that might make it extinct.Cheetah cuds stay with his or her mom for 2 years befor leaving there mothers portection.
          
