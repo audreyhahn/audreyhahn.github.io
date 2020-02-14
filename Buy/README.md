@@ -1,6 +1,1 @@
-Whant to buy a thing or two?
-What adout a braslet for $00.50?
 
-
-
-BRASLET $00.50 (/BRASLET $00.50)      (Neckles $1.00)  (Neckles $1.00)    Scarf $2.00        Small chain $0.20
