@@ -1,4 +1,4 @@
-# Endangered species.wildlife
+# Endangered species
 
 
 [About](/About) 	
